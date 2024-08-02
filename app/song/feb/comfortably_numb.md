@@ -2,7 +2,7 @@
 
 I love the solo.
 
-Source: https://example.com/link/to/original/song/
+Source: https://www.youtube.com/watch?v=_FrOQC-zEog
 
 ## Album
 
